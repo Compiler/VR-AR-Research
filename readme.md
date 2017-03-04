@@ -1,1 +1,1 @@
-# AR/VR Research yooooooo 
+# AR/VR Research
